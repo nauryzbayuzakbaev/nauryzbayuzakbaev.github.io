@@ -1,0 +1,1 @@
+# nauryzbayuzakbaev.github.io
